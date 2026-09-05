@@ -10,5 +10,5 @@ If you're also chronically online, check out some of my stuff or reach out:
 
 - [Website](https://nick.imaclean.me)
 - [Cookbook](https://cook.imaclean.me)
-- [email](mailto:nick@imaclean.me)
+- [Email](mailto:nick@imaclean.me)
 - [LinkedIn](https://www.linkedin.com/in/nick-maclean/)
